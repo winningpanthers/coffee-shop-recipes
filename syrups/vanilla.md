@@ -7,7 +7,7 @@
 - 1 cup sugar
 - 1 cup water
 - 1 vanilla bean (or 1 1/2 Tbsp vanilla extract)
-- add sneeze queeze
+- apinch of salt
 
 ## How to Make
 
