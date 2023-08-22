@@ -1,12 +1,13 @@
 # White Chocolate Mocha​
 
+## Description: Espresso meets white chocolate in this classic drink. Top it off with a dollop of whipped cream for a sweet, creamy beverage that delights with every sip a staff favorite
 ## Description: Espresso meets white chocolate in this classic drink. Top it off with a dollop of whipped cream for a sweet, creamy beverage that delights with every sip and pairs pefectly with almond crossaint
 
 ## Ingredients
 
 - 4 Tbsp white chocolate chips or chopped white chocolate
 - 1 shot Espresso Roast
-- 1 cup wjp;e milk
+- 1 cup 2% milk
 - Whipped cream
 
 ## How to make White Chocolate Mocha​
@@ -25,7 +26,9 @@
 
 ### Step 4
 
-- Froth wjole milk using your preferred method.
+
+- Froth whole milk using your preferred method.
+
 
 ### Step 5
 
