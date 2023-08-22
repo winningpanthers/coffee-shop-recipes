@@ -5,7 +5,7 @@
 ## Ingredients
 
 - 1 cup sugar
-- 1 cup water
+- 1 cup water + milk
 
 ## How to Make
 
